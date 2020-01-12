@@ -1,1 +1,0 @@
-# Trimineman.github.io
